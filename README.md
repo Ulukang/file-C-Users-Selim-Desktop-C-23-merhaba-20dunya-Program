@@ -1,1 +1,0 @@
-# file-C-Users-Selim-Desktop-C-23-merhaba-20dunya-Program
